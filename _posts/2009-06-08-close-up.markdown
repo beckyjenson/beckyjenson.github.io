@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-06-08 16:41:24+00:00
+layout: post
+slug: close-up
+title: Close-up
+wordpress_id: 1796
+categories:
+- Misc
+---
+
+![blog-september06-00011](http://beta.beckyjenson.com/wp-content/uploads/2009/06/blog-september06-00011.jpg)

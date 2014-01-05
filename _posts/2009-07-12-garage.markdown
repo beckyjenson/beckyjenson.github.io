@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-07-12 15:37:38+00:00
+layout: post
+slug: garage
+title: Garage
+wordpress_id: 1984
+categories:
+- Travel
+---
+
+![blog-june05-0001-4](http://beta.beckyjenson.com/wp-content/uploads/2009/07/blog-june05-0001-4.jpg)

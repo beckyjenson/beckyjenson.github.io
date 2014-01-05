@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-06-18 16:04:30+00:00
+layout: post
+slug: strum
+title: Strum
+wordpress_id: 1835
+categories:
+- Travel
+---
+
+![blog-january05-00011](http://beta.beckyjenson.com/wp-content/uploads/2009/06/blog-january05-00011.jpg)

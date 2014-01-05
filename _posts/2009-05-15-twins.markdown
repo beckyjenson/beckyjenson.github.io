@@ -1,0 +1,14 @@
+---
+author: becky
+comments: true
+date: 2009-05-15 17:05:35+00:00
+layout: post
+slug: twins
+title: Twins
+wordpress_id: 1616
+categories:
+- Babies
+- Portraits
+---
+
+![blog-may09-0021](http://beta.beckyjenson.com/wp-content/uploads/2009/05/blog-may09-0021.jpg)

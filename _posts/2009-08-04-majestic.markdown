@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-08-04 22:13:32+00:00
+layout: post
+slug: majestic
+title: Majestic
+wordpress_id: 2064
+categories:
+- Travel
+---
+
+![blog-June05-0001](http://beta.beckyjenson.com/wp-content/uploads/2009/08/blog-June05-0001.jpg)

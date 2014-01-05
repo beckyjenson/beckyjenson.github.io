@@ -1,0 +1,16 @@
+---
+author: becky
+comments: true
+date: 2012-04-10 23:11:46+00:00
+layout: post
+slug: sweet-baby-blue-eyes-turns-one
+title: Sweet Baby Blue Eyes Turns One!
+wordpress_id: 3381
+categories:
+- Children &amp; Family
+- Portraits
+---
+
+I met sweet little [Spencer](http://www.beckyjenson.com/2011/09/sweet-baby-blue-eyes/) when he was just six months old.  Now he's a big, happy one-year-old and I even convinced his shy parents to join in our session out at the [Tualatin Nature Preserve](http://www.yelp.com/biz/tualatin-hills-nature-park-and-interpretive-center-beaverton)!  He may not have any words yet, but his little chipmunk chatter as he chewed us out several times kept us laughing the whole session long.
+
+[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00012.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00012.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00022.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00022.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00033.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00033.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00043.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00043.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00063.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00063.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00053.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00053.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-0001-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-0001-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-0002-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-0002-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00103.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00103.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00073.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00073.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00083.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00083.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00093.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00093.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00113.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00113.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00123.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00123.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00133.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00133.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00143.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/04/blog-March12-00143.jpg)

@@ -1,0 +1,16 @@
+---
+author: becky
+comments: true
+date: 2012-05-03 19:00:01+00:00
+layout: post
+slug: meet-the-littlest-duck-fan
+title: Meet the Littlest Duck Fan
+wordpress_id: 3454
+categories:
+- Babies
+- Portraits
+---
+
+Sweet, simple, calm, comfort.  These are the aspects I strive to instill in every newborn session.  Allowing the infant and parents remain in their home and avoiding excessive props and lighting lets the essence of this new, amazing person shine through; lets the love and delight of the parents resonate.  Newborn sessions are tricky, but the challenge is worth it every time.  These images make me smile.
+
+[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0001-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0001-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0002.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0002.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0003.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0003.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0001.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0001.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0004.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0004.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0005.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0005.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0006.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0006.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0002-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0002-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0007.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0007.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0008.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0008.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0003-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0003-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0004-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0004-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0005-2.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0005-2.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0009.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0009.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0010.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0010.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0011.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0011.jpg)[![](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0013.jpg)](http://www.beckyjenson.com/wp-content/uploads/2012/05/blog-April12-0013.jpg)

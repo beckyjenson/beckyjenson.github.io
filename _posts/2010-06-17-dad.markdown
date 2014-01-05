@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2010-06-17 14:58:13+00:00
+layout: post
+slug: dad
+title: Dad
+wordpress_id: 343
+categories:
+- Travel
+---
+
+[![](http://beta.beckyjenson.com/wp-content/uploads/2010/06/blog-May06-0001.jpg)](http://beta.beckyjenson.com/wp-content/uploads/2010/06/blog-May06-0001.jpg)

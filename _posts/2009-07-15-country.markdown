@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-07-15 20:48:38+00:00
+layout: post
+slug: country
+title: Country
+wordpress_id: 2010
+categories:
+- Travel
+---
+
+![blog-june05-00011](http://beta.beckyjenson.com/wp-content/uploads/2009/07/blog-june05-00011.jpg)

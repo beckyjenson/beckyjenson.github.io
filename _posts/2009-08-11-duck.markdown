@@ -1,0 +1,13 @@
+---
+author: becky
+comments: true
+date: 2009-08-11 23:23:07+00:00
+layout: post
+slug: duck
+title: Duck
+wordpress_id: 2084
+categories:
+- Travel
+---
+
+![blog-June05-0001](http://beta.beckyjenson.com/wp-content/uploads/2009/08/blog-June05-00012.jpg)

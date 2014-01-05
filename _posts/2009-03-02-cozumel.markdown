@@ -1,0 +1,15 @@
+---
+author: becky
+comments: true
+date: 2009-03-02 03:45:26+00:00
+layout: post
+published: false
+slug: cozumel
+title: Cozumel
+wordpress_id: 1366
+categories:
+- Misc
+---
+
+![A glimpse of the Isle of Cozumel](http://beta.beckyjenson.com/wp-content/uploads/2009/03/blog-0001-2.jpg)
+    A glimpse of the Isle of Cozumel
